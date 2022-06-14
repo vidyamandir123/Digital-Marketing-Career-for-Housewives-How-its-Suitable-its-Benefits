@@ -1,0 +1,2 @@
+# Digital-Marketing-Career-for-Housewives-How-its-Suitable-its-Benefits
+Digital marketing Career for Housewives is a fast-growing and lucrative path. It has become a useful  tool for all kinds of businesses. The course helps women to understand how to use digital marketing tools, which in turn helps them in various ways like building their brand, increasing their sales and getting more customers. 
